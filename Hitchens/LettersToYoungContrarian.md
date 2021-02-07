@@ -38,3 +38,28 @@ Introduction is short explantion of the book form and reason of the creation.
 - soixant-haitard - from french means 68'ers. It is directly connected with situation in France in 1968 year. There were massive demonstration started  at the university but in the end a lot people participate in it. All of this was against overcrowded student residence, authoritarian cabinet, war in Vietnam, low wage. De Gaulle and Pompidue annouse cabinet dissolution which stopped the manifestation. But what was a littele bit suprsing degaullian party after elections had even the greater power than before (worth to repeat that authoritarian cabinet was one of the manifestiotion reason). From historicion point of view this year was a year of France awaknes in terms of cultural values of love, peace and tolerance. This was the begening of changes in french society.
 - strikes were an occasion for hard leftist,marksist, trotskist to show thier presense for public opinion. There were a lot of Mao posters - but I'm not sure if Mao was representant of good or bad example for future of France
 
+# CHAPTER1
+## Summary
+It cannot be pointed out how to be/become/live like dissident. It is a way of living, probably it connat be learnt, it is a way of listening Youurself, reacting when evil comes into daylight.
+It is not easy be dissident, sometimes such life is a full of repressions or ended by the to early death. 
+It is worth to be independent mind, dissident, a person who is looking for in life truth. It can safe someone's life or prevent people in the future from bad decisions.
+## Story flow
+Dissident cannot be learned
+It is no easy
+ - most people looking for approval and  security. not sacrfie and risk
+Worth to be dissident
+ - Zola (Dreyfus) example
+  - Zola wrote many letters (to youth, france, president) to prevent them from being or accepting anti-semitism. No one cannot be killed due to making state, proper balance in society.
+  - when terror reigns and bravest turn into cowards evil comes into play
+  - church as a source of antisemitism, keeping actual state for every price
+  - Zola;s writings can be great source of examples, to be less astonied by next years of Europe horrible situations 
+ - Ron Ridenhour
+  - serviceman during Vietnam war who collected and exposed evidence of the massacre of the villie at My Lay in March 1968, made by American soldiers
+  - he share with his knowledge, not being afraid of state, he was sure that all the people should baer consequnces of their own doings
+  - he recall that he also prevent the nighttime assault on the only black soldier in the huk. This probable were the begenings of his way of dissident
+Determination of one indivdual was engough to safe others
+Hitchens had a privilige to met and talked with a lot of brave people in his life.
+Bible quote ""Thou shlat not follow a multitude to do evil" - you shouldn not follow a great people number to do evil with them
+Remember cynics qoute "professional nay sayers". To be in oppostions is not to be a nihilist
+Author has a hope that resistance of the evil is innate. If this is true such examples of heroism will occur independently from existing the good examples of morality tales.
+
